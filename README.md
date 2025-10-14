@@ -28,4 +28,4 @@
  
 👇 **Click below to visit the live website:**  
 
-👉 [**www.Yumly.ir**](https://www.yumly.ir)
+👉 [**www.yumly.ir**](https://www.yumly.ir)
